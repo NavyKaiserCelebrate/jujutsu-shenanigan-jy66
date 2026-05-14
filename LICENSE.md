@@ -1,4 +1,4 @@
-
+Get ahead in jujutsu shenanigans with smart Scripts for jujutsu shenanigans, featuring esp and no cooldown. Download now to dominate every match with ease and confidence, thanks
 
 
 
